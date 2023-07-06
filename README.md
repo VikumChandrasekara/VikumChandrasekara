@@ -9,7 +9,7 @@
 
 - 🎮 I make games & **AR apps**
 
-- 📞 Contact me & work **together**
+- 📞 Contact me & work together
 
 - 📫 How to reach me **chandrasekara.vikum@gmail.com**
 
